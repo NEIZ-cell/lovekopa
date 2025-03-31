@@ -1,2 +1,0 @@
-# lovekopa
-kobeцlovers 
